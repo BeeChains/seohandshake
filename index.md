@@ -1,37 +1,12 @@
-## Welcome to GitHub Pages
+## SEO HANDSHAKE | Get top SEO results with top level Handshake(HNS) domains, more inbound links and more leads. Facebook is currently the number one search in the world, but Handshake is redistributing the power of the internet backbone and root zone into the Hands of We The People. 
 
-You can use the [editor on GitHub](https://github.com/BeeChains/seohandshake/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+| [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [HNS-DOMAINS](http://home.hns-domains.hns.to/) | [Contact](mailto:innerinetcompany@gmail.com) | [IINC](http://dlink.innerinetcompany.hns.to/) |
+ [![image](https://user-images.githubusercontent.com/37987346/103435699-6be72500-4be0-11eb-8264-7dcb24c14987.png)](http://shapereality.innerinetcompany.hns.to/)
+We are changing the world wide web one I and Handshake at a time.
+- "Knowledge is a possession of the mind, Truth is experience of the soul. The "I" of the material mind perceives only a world of factual knowledge, but the "I" of spiritualized intellect discerns a world of true values." [Urantia Book](https://youtu.be/U8QF2u5aw5o?t=1719)
+# "I" As The Center Of Gravity Is The Seat Of Unity, At The Center One Can See The Infinite.
+ # [Own The Web 3](http://official.owntheweb3.hns.to/) we Consciously CHOOSE to Bend and [SHAPE Reality](http://innerinetcompany.shapereality.hns.to/) from the [Root of Perception](http://findusontheweb.innericompany.hns.to/) while customizing [The Root Zone](http://therootzone.hns.to/) File of the Internet with our [HNS-DOMAINS](http://home.hns-domains.hns.to/).
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+- see dlink [SEOHANDSHAKE](http://seohandshake.hns.to/)
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/BeeChains/seohandshake/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+# Any domain at [HNS-DOMAINS](http://home.hns-domains/) and more are available at [NameBase](https://namebase.io/), take your POWER back, own the internet and BEcome a [Director of Handshake](https://handshake.org/) Now!
